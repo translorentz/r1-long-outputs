@@ -16,7 +16,7 @@ By the time the first frost came, hardening the ground where Garrett’s footpri
 
 Garrett called once, three months later. Lucy let it go to voicemail. When she played the message, his voice crackling through the speaker like a campfire story, she marveled at how small it sounded. *Just checking in*, he said, as if they were colleagues. *Hope you’re both—*. The line cut off, or maybe he’d hung up. She deleted it while Adam watched from the stairs, his face a mosaic of hope and scorn. That night, she dreamt of anchors—not the silver ones Garrett had abandoned, but real ones, iron and barnacled, dragging the ocean floor. When she woke, the pillow was damp, though she couldn’t say whether from sweat or tears.  
 
-By spring, the duffel bag was gathering dust in the attic, and Adam had started wearing his father’s old leather jacket. Lucy noticed but didn’t comment. Some silences, she understood now, were the only language they had left.
+By spring, Adam had started wearing his father’s old leather jacket. Lucy noticed but didn’t comment. Some silences, she understood now, were the only language they had left.
 
 **Chapter 2: The Geometry of Two Strangers**  
 
